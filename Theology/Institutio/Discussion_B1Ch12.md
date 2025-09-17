@@ -9,10 +9,10 @@ The creation of a physical idol (like a statue) is merely the outward expression
 
 As theologian J.I. Packer stated, "A God made in our own image is a false god."
 
-How an Incorrect Knowledge of God Becomes Idolatry
+### How an Incorrect Knowledge of God Becomes Idolatry
 Here’s how this works in practice. We engage in this form of idolatry whenever we worship a god of our own making, even if we call him "God" or "Jesus."
-
-1. Creating a God of Our Preferences ✂️
+<ul>
+<li> **Creating a God of Our Preferences**</li>
 This is the most common form of mental idolatry. It involves "creating" a god by emphasizing the attributes we like while ignoring or dismissing the ones we find uncomfortable.
 
 The "All-Loving, Never-Judging" God: This idol is always affirming and never confronts sin. He is more of a cosmic therapist or a divine grandfather than the holy and just Judge of the universe. People worship this god because he makes no moral demands and allows them to define their own truth.
@@ -21,10 +21,11 @@ The "God of My Political Party": This is a tribal idol who loves the people we l
 
 The "Vending Machine" God: This god exists primarily to serve our needs. We insert prayers and good behavior, and in return, he dispenses health, wealth, and success. Worship is purely transactional. When he fails to deliver, we become angry or "lose our faith," revealing that we were never worshiping the true, sovereign God, but a cosmic servant created to fulfill our wishes.
 
-2. Reducing God to Our Own Understanding 🧠
+<li> **Reducing God to Our Own Understanding** 🧠</li>
 Calvin's great fear was that the finite human mind would try to "contain" the infinite God. When we think we have God all figured out, we are no longer worshiping the mysterious, transcendent Creator but a manageable concept that fits neatly into our theological boxes. This reduces the living God of the Bible to a predictable formula or a philosophical principle, which is a form of intellectual idolatry.
+</ul>
 
-The Biblical Example: The Golden Calf
+#### The Biblical Example: The Golden Calf
 The clearest example of this is the incident of the golden calf in Exodus 32. This is crucial to understand: the Israelites did not say, "Let's forget Yahweh and worship this new bull god."
 
 Instead, Aaron proclaimed, "Tomorrow is to be a festival to the LORD" (Exodus 32:5). They built an image and tried to attach the name and worship of the true God to it.
