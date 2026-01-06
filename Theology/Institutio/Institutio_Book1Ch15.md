@@ -96,3 +96,157 @@ Calvin explains these "Faculties" to show us what we have **lost**.
 By understanding that the soul was designed to have a "perfect Pilot" (Understanding) and a "perfect Engine" (Will), we can see more clearly how much we need the Holy Spirit to **renew our minds** and **change our hearts**.
 
 ---
+Moving on to the **Image of God** (often called the *Imago Dei* in theology), Calvin uses this concept to explain the "special sauce" that makes human beings different from the rest of creation.
+
+Since we are continuing at a beginner level, let's break down how Calvin describes this "likeness" in **Chapter 15**.
+
+---
+
+### 1. What is the Image of God?
+
+For Calvin, the "Image of God" isn't about our physical bodies (God doesn't have a nose or hands, after all). Instead, it is a **spiritual reflection**.
+
+Imagine a mirror. If you stand in front of it, the mirror shows your likeness. Calvin argues that Adam was created to be a perfect mirror of God’s character. When people looked at Adam, they saw a reflection of God’s own **wisdom, justice, and goodness**.
+
+### 2. Where is it Located?
+
+While God’s glory can be seen in the way the human body is "fearfully and wonderfully made," Calvin is very specific that the true Image of God is located in the **Soul**.
+
+Specifically, it resides in those two faculties we just talked about:
+
+* **The Understanding:** Being able to know God and understand truth.
+* **The Will:** Being able to love what is right and choose it freely.
+
+### 3. The Three Pillars: Knowledge, Righteousness, and Holiness
+
+Calvin doesn't just leave it at a "reflection"; he gives us three specific qualities that define the Image of God. He gets these from the New Testament (specifically Ephesians 4:24 and Colossians 3:10), which talk about being "renewed" in God's image:
+
+| Quality | What it looked like in Adam |
+| --- | --- |
+| **True Knowledge** | Adam knew God intimately. He didn't just know *about* God; he knew God's will and nature clearly. |
+| **Righteousness** | Every action and thought Adam had was perfectly in line with God's moral law. He was "straight" (the literal meaning of righteous). |
+| **Holiness** | Adam’s heart was pure and set apart for God. His affections and desires were clean and focused on worship. |
+
+### 4. What Happened to the Image?
+
+This is a key part of Chapter 15. Calvin explains that the Image of God was not **destroyed**, but it was **"viciously corrupted."**
+
+Think of a beautiful, expensive painting that someone has thrown black ink all over.
+
+* Is it still a painting? **Yes.**
+* Can you still see that it was once a masterpiece? **Yes.**
+* Is it "ruined" in its current state? **Absolutely.**
+
+Because of sin, our "mirror" is cracked and dirty. We still have an intellect, but it's clouded by lies. We still have a will, but it's inclined toward selfishness. We still have "remnants" of the image (which is why every human life still has dignity), but the "glory" is gone.
+
+### 5. Why Does This Matter?
+
+Calvin explains this to point us toward **Jesus**.
+He argues that if we want to see what the perfect Image of God looks like, we have to look at Christ. And the goal of the Christian life (regeneration) is for God to slowly "clean the mirror" and restore that image of knowledge, righteousness, and holiness in us.
+
+---
+
+**Summary of Chapter 15 so far:**
+
+* **The Soul** is the command center.
+* **Understanding and Will** are the tools of the soul.
+* **The Image of God** is the perfect spiritual reflection of God within those tools.
+
+**Would you like to wrap up Chapter 15 by discussing "Free Will"—specifically why Adam fell if he was so perfect?**Moving on to the **Image of God** (often called the *Imago Dei* in theology), Calvin uses this concept to explain the "special sauce" that makes human beings different from the rest of creation.
+
+Since we are continuing at a beginner level, let's break down how Calvin describes this "likeness" in **Chapter 15**.
+
+---
+
+### 1. What is the Image of God?
+
+For Calvin, the "Image of God" isn't about our physical bodies (God doesn't have a nose or hands, after all). Instead, it is a **spiritual reflection**.
+
+Imagine a mirror. If you stand in front of it, the mirror shows your likeness. Calvin argues that Adam was created to be a perfect mirror of God’s character. When people looked at Adam, they saw a reflection of God’s own **wisdom, justice, and goodness**.
+
+### 2. Where is it Located?
+
+While God’s glory can be seen in the way the human body is "fearfully and wonderfully made," Calvin is very specific that the true Image of God is located in the **Soul**.
+
+Specifically, it resides in those two faculties we just talked about:
+
+* **The Understanding:** Being able to know God and understand truth.
+* **The Will:** Being able to love what is right and choose it freely.
+
+### 3. The Three Pillars: Knowledge, Righteousness, and Holiness
+
+Calvin doesn't just leave it at a "reflection"; he gives us three specific qualities that define the Image of God. He gets these from the New Testament (specifically Ephesians 4:24 and Colossians 3:10), which talk about being "renewed" in God's image:
+
+| Quality | What it looked like in Adam |
+| --- | --- |
+| **True Knowledge** | Adam knew God intimately. He didn't just know *about* God; he knew God's will and nature clearly. |
+| **Righteousness** | Every action and thought Adam had was perfectly in line with God's moral law. He was "straight" (the literal meaning of righteous). |
+| **Holiness** | Adam’s heart was pure and set apart for God. His affections and desires were clean and focused on worship. |
+
+### 4. What Happened to the Image?
+
+This is a key part of Chapter 15. Calvin explains that the Image of God was not **destroyed**, but it was **"viciously corrupted."**
+
+Think of a beautiful, expensive painting that someone has thrown black ink all over.
+
+* Is it still a painting? **Yes.**
+* Can you still see that it was once a masterpiece? **Yes.**
+* Is it "ruined" in its current state? **Absolutely.**
+
+Because of sin, our "mirror" is cracked and dirty. We still have an intellect, but it's clouded by lies. We still have a will, but it's inclined toward selfishness. We still have "remnants" of the image (which is why every human life still has dignity), but the "glory" is gone.
+
+### 5. Why Does This Matter?
+
+Calvin explains this to point us toward **Jesus**.
+He argues that if we want to see what the perfect Image of God looks like, we have to look at Christ. And the goal of the Christian life (regeneration) is for God to slowly "clean the mirror" and restore that image of knowledge, righteousness, and holiness in us.
+
+---
+To wrap up **Book 1, Chapter 15**, we arrive at the most challenging question: **If Adam was created with such a perfect soul and reflected the Image of God, why did he fall?** This is where Calvin discusses the original state of **Free Will**.
+
+---
+
+### 1. Adam’s Freedom: "The Power to Choose"
+
+Calvin explains that Adam, in his original state, possessed a will that was truly free. Unlike us today—who Calvin argues are "slaves to sin"—Adam had no internal "weight" pulling him toward evil.
+
+* **He was "Upright":** Adam’s soul was in perfect balance. His Understanding saw the good, and his Will had the capacity to follow it.
+* **The "Possibility" of Standing:** Calvin insists that Adam was given enough strength to remain faithful if he *chose* to use it. God didn't set him up to fail.
+
+### 2. The Great Mystery: Why did he fall?
+
+If Adam was perfect and had the power to stay faithful, why did he choose to sin?
+
+Calvin’s answer is honest: **It was a choice of the will.**
+Adam wasn't forced by God, and he wasn't "tricked" because of a defect in his creation. He simply turned away from the light of his Understanding.
+
+Calvin uses this to protect God's character:
+
+* **God is not the Author of Sin:** Because Adam had the genuine power to choose good, the blame for the Fall rests entirely on Adam, not on the "design" of the Creator.
+* **A "Mutable" Will:** Adam’s will was "mutable" (meaning it could change). God could have made Adam *unable* to sin (like the angels in heaven or the saints in the future glory), but for His own secret reasons, He chose to give Adam a will that was capable of falling.
+
+### 3. The Result: A "Self-Inflicted" Wound
+
+Calvin argues that when Adam sinned, he didn't just break a rule; he **broke the machine.** * Before the Fall: The Will was free to choose good or evil.
+
+* After the Fall: The Will lost its "uprightness." It became bent toward selfishness and rebellion.
+
+### 4. How Calvin Differentiates "States"
+
+To make this easier to understand, Reformed theology (following Calvin's lead) often breaks human freedom into four stages:
+
+| State | Ability |
+| --- | --- |
+| **1. Innocence (Adam)** | Able to sin, and able *not* to sin. |
+| **2. Fallen (Us naturally)** | Able to sin, but **unable** not to sin. |
+| **3. Grace (Believers)** | Able to sin, and able (by the Spirit) not to sin. |
+| **4. Glory (Heaven)** | **Unable** to sin. |
+
+---
+
+### Summary of Chapter 15
+
+Calvin’s goal in this chapter is to show us the **height from which we fell.** By showing how noble the soul was, how beautiful the Image of God was, and how free Adam's will was, he makes us realize that our current sinfulness isn't "just human nature"—it's a **corruption** of a masterpiece.
+
+It sets the stage for Book 2, where he explains how Jesus (the "Second Adam") comes to restore what the first Adam lost.
+
+---
